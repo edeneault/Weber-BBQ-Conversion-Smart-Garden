@@ -73,7 +73,7 @@ This was all that was needed and I called it "*done*".
 <br>
 <br>
 
-![](assets/smart_garden_bbq_conversion-aca147c4.jpg)
+![](assets/smart_garden_bbq_conversion-d5d786ff.jpg)
 
 #### The Plumbing
 
@@ -105,7 +105,7 @@ I have been procrastinating until a pump fails...
 <br>
 <br>
 
-![](assets/smart_garden_bbq_conversion-bbe81910.jpg)
+![](assets/smart_garden_bbq_conversion-3b934014.jpg)
 
 #### The Control Enclosures
 
